@@ -1,6 +1,6 @@
 Hi, I’m @DragonDuma 
 I’m interested in Programming and Physics
-I’m looking to collaborate on nothing; yet
+I’m looking to collaborate on nothing yet
 How to reach me, I don't want to form any sort of Relationship with anyone yet.
 
 <!---
